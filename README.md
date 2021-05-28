@@ -1,1 +1,1 @@
-### [MissThee's website](http://missthee.ink)
+### [MissThee's website](http://missthee.com)
